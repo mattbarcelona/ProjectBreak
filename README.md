@@ -10,6 +10,7 @@ Compártela con tus compañeros en el 👥 Foro Challenge U2S15
 Por último, vuelve a este espacio y responde al siguiente formulario.4
 Si tienes alguna duda contacta con tu LI o con TA para resolverla.
 
+![image](https://github.com/user-attachments/assets/6f3133af-e1f3-4993-9f6d-e20d2ff2e612)
 
 
 
